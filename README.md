@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Data Analysis**
 
-- 📫 How to reach me **soumenjana1799@gmail.com**
+- 📫 How to reach me **soumenjana1799@gmail.com** 
 
 - ⚡ Fun fact **I think I am Funny**
 
