@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **soumenjana1799@gmail.com**
 
-- ⚡ Fun fact **I think I am Funny**
+- ⚡ Fun fact **"Life's a mixtape—rewind, play, and groove like it's the 80s and 90s, where every lyric was a feeling and every beat, a memory!" 🎶✨**
 <h3 align="left">Connect with me:</h3> 
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/soumenj" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/soumenj" height="30" width="40" /></a>
